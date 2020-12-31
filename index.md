@@ -1,3 +1,7 @@
 # Amol Stronk
 
-**Amol orz orz orz**
+amol orz uwu
+
+howsostronk
+
+
