@@ -1,6 +1,7 @@
-# Amol Stronk
+# Farley Stronk
 
-amol orz uwu
+amol sux this username is FAK NOOS
+farley orz uwu
 
 howsostronk
 
